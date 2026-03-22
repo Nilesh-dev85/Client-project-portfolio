@@ -18,4 +18,4 @@ upadated to be soon.
 ## 📞 Hire Me
 📧 idigitalservice.co@gmail.com 
 
-💼 Available for freelance projects
+## 💼 Available for freelance projects
